@@ -1,0 +1,1 @@
+boiled water, maggi packet , schewzan sos and chilli flakes
